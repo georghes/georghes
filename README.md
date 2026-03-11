@@ -1,2 +1,1 @@
-# georghes
-New into this, no updates, just working
+New into this, no updates, just working 😐
